@@ -1,1 +1,1 @@
-Digitalization at BAADER rules!
+Digitalization at BAADER is the BEST!
